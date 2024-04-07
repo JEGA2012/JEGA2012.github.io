@@ -1,2 +1,2 @@
-# donpelusa.github.io
+# jorge_gonzalez.io
 Portafolio CV
